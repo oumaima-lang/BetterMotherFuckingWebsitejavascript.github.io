@@ -1,0 +1,1 @@
+https://BetterMotherFuckingWebsitejavascript.github.io
